@@ -21,7 +21,7 @@ Demons are typically invisible to mortals, unless you're like a holy type that c
 
 Thoughts? I'll probably start in with some concept art for things and see if that helps me fill in some design holes. I often get ideas about what needs to be in a place once I try to draw it and the people in it.
 
-What sort of, well, abilities do demons have that make the mortals fear them?
+What sort of, well, abilities do demons have that cause the mortals fear them?
 
 ## Locations
 
