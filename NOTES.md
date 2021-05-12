@@ -4,7 +4,7 @@ Does this make more sense as a visual novel, or as an RPG? I particularly like t
 
 I asked about Tarot because I'm considering using them either thematically or for RNG for game systems. Just a thought at the moment, as I don't have a particular system in mind for it yet.
 
-I talked to some teenage girls (daughters of some friends of mine) a couple days ago, and asked them what sorts of things about magic and witches they thought were fun and could be good for games, and a repeat idea was having a familiar, and brewing potions in cauldrons. Some sort of crafting system for potions could be fun. Cat familiars obvs, but also fun things like ravens, or bound imps could also be interesting, etc. 
+I talked to some teenage girls (daughters of some friends of mine) a couple days ago, and asked them what sorts of things about magic and witches they thought were fun and could be good for games, and a repeat idea was having a familiar, and brewing potions in cauldrons. Some sort of crafting system for potions could be fun. Cat familiars obvs, but also fun things like ravens, or bound imps could also be interesting, etc.
 
 Possible game systems that could be interesting; I kind of like the idea of a forest just outside town that's got a lot of plants and random stuff that you can collect. Foraging seems like a good mechanic for this sort of low-key exploratory/creative play style.
 
